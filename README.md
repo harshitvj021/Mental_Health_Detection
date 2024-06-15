@@ -10,7 +10,7 @@ with an escalating and pressing mental health predicament. The intricate tapestr
 life interwoven with personal and societal expectations has given rise to a spectrum of mental 
 health challenges among students. These challenges are as diverse as the stress induced by 
 academic performance and impending deadlines to the intricate nuances of personal 
-relationships and the ongoing journey of identity  development.
+relationships and the ongoing journey  of identity  development.
 
 Navigating the labyrinth of factors impacting mental well-being, students find themselves 
 entangled in a complex web. The perpetual pressure cooker of academic rigors, coupled with 
